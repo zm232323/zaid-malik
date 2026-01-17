@@ -16,4 +16,4 @@
 - Learn data analysis tools
 
 ## Connect with Me
-- LinkedIn: https://linkedin.com/in/zaid-malik
+- LinkedIn: https://www.linkedin.com/in/zaid-malik-01702b2b3/
